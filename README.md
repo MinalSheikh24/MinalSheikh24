@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MinalSheikh24
+- 👋 Hi, I’m @MinalSheikh24 - an AI enthusiast
 - "Exploring AI's limitless possibilities. Join the journey!"
 - Reach me out at @minaal.sheikh2416@gmail.com
 
